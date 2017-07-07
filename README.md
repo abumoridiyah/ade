@@ -1,0 +1,2 @@
+# ade
+Honesty and focus
